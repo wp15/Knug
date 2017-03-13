@@ -1,1 +1,1 @@
-### Not very Knug
+### No slask, it's quite knug-ish!
